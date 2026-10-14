@@ -12,4 +12,4 @@
 ```
 
 ### _Contatos_
-[WhatsApp](https://wa.me/5567996695042") | [LinkedIn](https://www.linkedin.com/in/willianruiz/) | [Gmail](mailto:contatowillianruiz@gmail.com) 
+[WhatsApp](https://wa.me/+5567996695042) | [LinkedIn](https://www.linkedin.com/in/willianruiz/) | [Gmail](mailto:contatowillianruiz@gmail.com) 
